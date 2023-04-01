@@ -4,7 +4,5 @@
 
 - Discord [Greekz#5436](https://discord.gg/4EXTHnDnjJ) <img src="https://seeklogo.com/images/D/discord-color-logo-E5E6DFEF80-seeklogo.com.png" width="23">
 
-- Discord Serwer [Greekz#5436](https://discord.gg/4EXTHnDnjJ) <img src="https://seeklogo.com/images/D/discord-color-logo-E5E6DFEF80-seeklogo.com.png" width="23">
-
 
 ![](https://komarev.com/ghpvc/?username=Greekz&color=brightgreen)
