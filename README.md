@@ -1,6 +1,6 @@
-- Youtube [Greekz](https://www.youtube.com/@Greekz7284)
+- Youtube [Greekz](https://www.youtube.com/@Greekz1337)
 
-- Discord [Greekz#5436](https://discord.gg/feathercompany)
+- Discord [Greekz#1337](https://discord.gg/feathercompany)
 
 - Twitch [Greekz1337](https://www.twitch.tv/greekz1337)
 
