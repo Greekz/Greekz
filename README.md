@@ -10,4 +10,4 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=Greekz&color=gray)
+![](https://komarev.com/ghpvc/?username=Greekz&color=black)
