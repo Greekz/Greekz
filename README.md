@@ -6,7 +6,7 @@
 
 - Feather Company [Join](https://discord.gg/feathercompany)
 
-- Boosts [Join](https://discord.gg/boostsv2)
+- Cheap Boost [Join](https://discord.gg/cheapxboost)
 
 
 
